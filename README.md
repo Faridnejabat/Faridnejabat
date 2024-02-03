@@ -9,7 +9,7 @@ If you're interested in teaming up or just want to have a conversation, feel fre
 📫 Let's connect:
 - LinkedIn: [Farid Nejabat](https://www.linkedin.com/in/farid-nejabat/)
 - Email: farid.nejabat@mail.polimi.it | Farid.nejabat97@gmail.com
-- Phone: +393517227601
+- Phone: +436787800846
 
 Looking forward to hearing from you about exciting collaborations!
   
