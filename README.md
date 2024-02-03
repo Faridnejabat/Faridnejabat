@@ -8,7 +8,7 @@ I'm eager to connect and collaborate with like-minded individuals on exciting Ma
 If you're interested in teaming up or just want to have a conversation, feel free to reach out to me.
 📫 Let's connect:
 - LinkedIn: [Farid Nejabat](https://www.linkedin.com/in/farid-nejabat/)
-- Email: farid.nejabat@mail.polimi.it | Farid.nejabat97@gmail.com
+- Email: Farid.nejabat97@gmail.com
 - Phone: +436787800846
 
 Looking forward to hearing from you about exciting collaborations!
